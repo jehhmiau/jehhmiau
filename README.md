@@ -1,3 +1,5 @@
+![arco-íris](https://user-images.githubusercontent.com/118578371/205416791-d0b34618-58a8-4555-b9e3-b7e43f3bd5e1.jpg)
+
 # Quem sou eu?
 - 👋 Oie,eu me chamo Jessica Pikes Santos, to indo pro 2° do esino medio
 
